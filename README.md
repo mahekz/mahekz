@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Mahekha Dahanayaka
-- 🎓 Graduated in BSc. (Hons) in Transport & Logistics Management from University of Moratuwa
+- 🎓 Graduated from BSc. (Hons) in Transport & Logistics Management from University of Moratuwa
 - 👩‍💻 Currently working as a Research fellow in Transport & Logistics field @ University of Moratuwa
 - 🌱 I’m interested in application of AI/ML in transport & logistics field 
 - 📫 you can reach me via mahekha15@gmail.com
